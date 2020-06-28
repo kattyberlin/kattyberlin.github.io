@@ -7,3 +7,7 @@ Christopher John Davison (born 15 October 1948), known professionally as Chris d
 * Don't pay the ferryman
 * Peaceful waters
 * The head and the heart
+
+His quote speaks volumes:
+> "There is always hope in the human heart
+> for better days ahead”
