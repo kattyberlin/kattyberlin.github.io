@@ -12,4 +12,4 @@ His quote speaks volumes:
 > "There is always hope in the human heart
 > for better days ahead”
 
-<img src="https://de.wikipedia.org/wiki/Chris_de_Burgh#/media/Datei:Gymnich_CdeB_(333).jpg"/>
+<img src="https://monkeypress.de/wp-content/uploads/2018/08/2018-07-31-Chris-de-Burgh-Bild-012.jpg"/>
