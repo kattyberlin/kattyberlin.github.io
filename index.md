@@ -11,3 +11,5 @@ Christopher John Davison (born 15 October 1948), known professionally as Chris d
 His quote speaks volumes:
 > "There is always hope in the human heart
 > for better days ahead”
+
+<img src="https://de.wikipedia.org/wiki/Chris_de_Burgh#/media/Datei:Gymnich_CdeB_(333).jpg"/>
